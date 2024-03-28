@@ -3,6 +3,9 @@ Thanks for stopping by.
 
 I am a hardware enthusiast and have been interested in it since I was a child, you can call me huaidang.
 
+See the world through continuous eyes,
+Create the future with discrete thinking.
+
 - 🔭 I am currently studying the course design of electronic power direction
 - 📫 You can reach me at my email 2643560781@qq.com
 - 👯 I’m looking to collaborate on ...
